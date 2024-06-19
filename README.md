@@ -1,0 +1,1 @@
+# CRSQRChkPntDaily_LIX01
